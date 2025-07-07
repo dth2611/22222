@@ -26,4 +26,4 @@
 在本站，日本AV免费不仅是免费看日本AV片，更是每日更新、内容丰富、播放流畅、智能推荐的高品质体验。立即收藏本站，随时获取最新日本AV片！
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dth2611/22222 ）</span>
